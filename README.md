@@ -1,1 +1,1 @@
-# Descifrando-la-operaci-n-empresarial-Global-Super-Store
+# Descifrando-la-operacion-empresarial-Global-Super-Store
